@@ -1,0 +1,2 @@
+# MkhaqLord
+Script roblox
